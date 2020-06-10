@@ -1,2 +1,0 @@
-# ayambetina
-Tahap pengembangan
